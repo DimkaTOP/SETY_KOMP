@@ -1,0 +1,1 @@
+# SETY_KOMP
